@@ -1,2 +1,2 @@
 # Homework-5_LeoM
-Upload tugas dari yang kedua hingga ke 4
+Upload tugas dari yang ke 2 hingga ke 4
